@@ -1,2 +1,5 @@
 # hack-days
 zzz
+
+
+PENDINGDELETIONDUETOINACTIVITYxzzzzz
